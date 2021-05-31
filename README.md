@@ -1,2 +1,0 @@
-# Dear_data
-slá
